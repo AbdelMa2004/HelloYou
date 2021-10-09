@@ -1,4 +1,4 @@
-# Er is oorlog in afghanistan mohamed en ze gezin proberen weg te gaan van de bombardementen. Waar gaan ze naar toe?
+Er is oorlog in afghanistan mohamed en ze gezin proberen weg te gaan van de bombardementen. Waar gaan ze naar toe?
 
 a.Ze verstoppen in Dichtbij zijnde gebouw.
 b.Ze stappen in de auto en gaan naar het vliegveld.
